@@ -1,0 +1,2 @@
+# ekart
+Bismillah hirrahamaan nirrahiim
